@@ -20,7 +20,7 @@ Atualmente na pós-graduação em Data Analytics (FIAP | 2025-2026), venho desen
 - Deep Learning
 ---
 
-## 💼 O que já trago da minha trajetória
+## 💼 Minha bagagem de experiências
 
 Mais de 4 anos trabalhando com campanhas digitais me deram uma base para além do design:
 
